@@ -28,5 +28,5 @@ Admin
 user: adnim
 pass: 13020944
 
-****** https:1sourcecodr.blogspot.com ******
-Subcribe my You tube Channel **** 1 Source code ****
+
+Subcribe my You tube Channel **** Bedanshi Subedi ****
